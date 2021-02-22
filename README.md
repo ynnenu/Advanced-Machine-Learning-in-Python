@@ -2,4 +2,4 @@
 Master's Class
 
 
-Different class lab over the weeks
+Different class labs over the weeks and online practice
